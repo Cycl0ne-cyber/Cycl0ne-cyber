@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on video games
 - 📫 How to reach me: Email: Alexander.daniel987654321@gmail.com 
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: My favourite game is roblox
+- ⚡ Fun fact: My favourite game is Minecraft
 
 <!---
 Cycl0ne-cyber/Cycl0ne-cyber is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
